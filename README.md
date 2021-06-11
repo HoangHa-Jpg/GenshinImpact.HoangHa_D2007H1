@@ -1,0 +1,1 @@
+# GenshinImpact.HoangHa_D2007H1
